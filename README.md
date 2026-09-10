@@ -13,8 +13,8 @@ Which brings me to my digital library project!
 <img width="80" height="80" alt="Screenshot 2026-09-09 at 16-56-55 CNPR UPDATE Eden Labrys on Patreon" src="https://github.com/user-attachments/assets/fb0da82b-bd8e-4908-a967-a3fc40ac9865" />
 
 Eden Labrys is a production collective composed of trans people who work to produce other trans music projects! 
-In addition to music production they also have a podcast "Captivating Nature of the Power of the Riff with guests as far and wide as Hayley Elizabeth and Rax King.
-I'll be working with Eden Labrys to archive some of their works, notes and anything I can get my grubby mitts on!
+In addition to music production they also have a podcast "Captivating Nature of the Power of the Riff" with guests as far and wide as Hayley Elizabeth and Rax King.
+I'll be working with Eden Labrys to archive some of their works, notes and anything I can get my grubby paws on!
 
 Below is a very rudimentary timetable
 
